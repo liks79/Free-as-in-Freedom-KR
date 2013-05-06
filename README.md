@@ -8,3 +8,9 @@ Free-as-in-Freedom-KR
 http://oreilly.com/openbook/freedom/
 
 
+역자 모집중
+-----------
+함께 번역하실 역자분을 모집합니다 ^^
+
+
+
